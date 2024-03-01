@@ -1,1 +1,1 @@
-# Mom-n-Pops-Receipts
+# Mom 'n Pops Receipts
